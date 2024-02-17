@@ -19,8 +19,7 @@ I'm AuroTactical, a dedicated professional in the field of game development, spe
 ## Contact Me
 
 📫 **Reach me**:  
-- Connect with me on [LinkedIn](https://www.linkedin.com/in/aurotactical)  
-- Follow me on [Twitter](https://twitter.com/AuroTactical)
+- Connect with me on the [Roblox Developer Forum](https://devforum.roblox.com/u/mrhello2227222)  
 
 ## Let's Connect!
 
